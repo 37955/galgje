@@ -2,7 +2,7 @@
 
 ## Te raden woord
 
-| |o|o| | |
+| |o|o|r| |
 
 
 ## Score
